@@ -160,6 +160,3 @@
 
 > 我再次强调，我们5G就是争夺“上甘岭”，就是世界高地。5G这一战关系着公司的生死存亡，所以我们一定要在这场“战争”中不惜代价赢得胜利。攻上“上甘岭”，全要靠你们。
 
----
-### 欢迎交流
-![ ](https://github.com/HuijieL/WechatBlog/blob/master/image/WechatORCode.jpeg)
